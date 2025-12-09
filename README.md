@@ -1,1 +1,1 @@
-https://github.com/IT23-2/id
+https://github.com/IT23-2/ono-tebe-nado
